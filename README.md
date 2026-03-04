@@ -1,1 +1,0 @@
-# erasmus_curriculum_database
